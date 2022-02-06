@@ -1,0 +1,98 @@
+---
+description: "Resep Bolu pisang, Sempurna"
+title: "Resep Bolu pisang, Sempurna"
+slug: 763-resep-bolu-pisang-sempurna
+date: 2020-07-16T11:00:56.688Z
+image: https://img-global.cpcdn.com/recipes/a51bb02f71cc8b69/751x532cq70/bolu-pisang-foto-resep-utama.jpg
+thumbnail: https://img-global.cpcdn.com/recipes/a51bb02f71cc8b69/751x532cq70/bolu-pisang-foto-resep-utama.jpg
+cover: https://img-global.cpcdn.com/recipes/a51bb02f71cc8b69/751x532cq70/bolu-pisang-foto-resep-utama.jpg
+author: Alfred Tucker
+ratingvalue: 4.3
+reviewcount: 10
+recipeingredient:
+- "250 gr Pisang Ambon atau pisang lain nya"
+- "300 tepung terigu protein sedang"
+- "150 gula pasir"
+- "2 sdt susu bubuk"
+- "1 sdt baking powder"
+- "1 sdt soda powder"
+- "2 butir telur"
+- "50 ml minyak sayur"
+- "50 ml susuair"
+- "sejumput Garam"
+recipeinstructions:
+- "Kita hancurkan pisang nya sampai menjadi bubur"
+- "Panaskan oven 170°c selama 10 menit"
+- "Lalu olesi cetakan dengan margarin/mentega lalu taburi dengan tepung sampai rata"
+- "Campurkan gula,telur,dan garam ke wadah untuk bahan, aduk hingga semuanya tercampur rata"
+- "Setelah itu masukkan minyak sayur dan susu aduk lagi hingga rata,dan masukkan lagi pisang yang sudah di hancurkan Aduk lagi hingga tercampur"
+- "Setelah itu, campurkan tepung terigu, soda powder,baking powder,dan juga susu bubuk menjadi satu lalu di saring bersama-sama"
+- "Setelah di saring masukkan secara bertahap (2-3 kali) tepung nya ke adonan pisang tadi, lalu di aduk sehingga tercampur dan tidak ada gumpalan"
+- "Setelah semuanya tercampur masukkan ke tempat cetakan"
+- "Kemudian, masukkan ke oven panggang selama 40 menit dengan suhu 170°"
+- "Siap di hidangkan, bolu pisangnya bisa bertahan 2-3 hari ya bund"
+categories:
+- Resep
+tags:
+- bolu
+- pisang
+
+katakunci: bolu pisang 
+nutrition: 198 calories
+recipecuisine: Indonesian
+preptime: "PT25M"
+cooktime: "PT54M"
+recipeyield: "2"
+recipecategory: Dessert
+
+---
+
+
+![Bolu pisang](https://img-global.cpcdn.com/recipes/a51bb02f71cc8b69/751x532cq70/bolu-pisang-foto-resep-utama.jpg)
+
+Lagi mencari ide resep bolu pisang yang unik? Cara menyiapkannya memang tidak susah dan tidak juga mudah. Kalau salah mengolah maka hasilnya akan hambar dan bahkan tidak sedap. Padahal bolu pisang yang enak harusnya sih memiliki aroma dan rasa yang mampu memancing selera kita.
+
+Ada beberapa hal yang sedikit banyak berpengaruh terhadap kualitas rasa dari bolu pisang, pertama dari jenis bahan, kemudian pemilihan bahan segar, sampai cara mengolah dan menghidangkannya. Tidak usah pusing kalau hendak menyiapkan bolu pisang enak di rumah, karena asal sudah tahu triknya maka hidangan ini dapat menjadi sajian istimewa.
+
+Untuk membuat bolu pisang kukus caranya pun mudah. Nantinya, perpaduan bahan-bahan pada bolu pisang kukus ini menghasilkan tekstur yang lembut serta cita rasa yang khas. Resep Bolu Pisang - Bolu pisang merupakan salah satu jajanan yang banyak digemari oleh masyarakat, dan banyak dibuat di rumah. hal itu karena bolu pisang ini dapat dijadikan sebagai.
+
+
+Nah, kali ini kita coba, yuk, siapkan bolu pisang sendiri di rumah. Tetap berbahan yang sederhana, hidangan ini bisa memberi manfaat dalam membantu menjaga kesehatan tubuhmu sekeluarga. Anda dapat menyiapkan Bolu pisang memakai 10 jenis bahan dan 10 langkah pembuatan. Berikut ini cara dalam menyiapkan hidangannya.
+
+<!--inarticleads1-->
+
+##### Bahan-bahan dan bumbu yang dibutuhkan dalam menyiapkan Bolu pisang:
+
+1. Gunakan 250 gr Pisang Ambon atau pisang lain nya
+1. Ambil 300 tepung terigu protein sedang
+1. Sediakan 150 gula pasir
+1. Siapkan 2 sdt susu bubuk
+1. Gunakan 1 sdt baking powder
+1. Gunakan 1 sdt soda powder
+1. Siapkan 2 butir telur
+1. Gunakan 50 ml minyak sayur
+1. Ambil 50 ml susu/air
+1. Gunakan sejumput Garam
+
+
+Bolu pisang adalah salah satu kue yang mudah dibuat. Bahan-bahan yang diperlukan pun standar, tidak banyak dan tidak rumit. Cara membuat bolu pisang juga mudah dan sederhana, kebanyakan. Bolu pisang kini menjadi bolu yang favorit , mungkin karena dari rasa khas pisang serta beda dari lainnya. 
+
+<!--inarticleads2-->
+
+##### Langkah-langkah membuat Bolu pisang:
+
+1. Kita hancurkan pisang nya sampai menjadi bubur
+1. Panaskan oven 170°c selama 10 menit
+1. Lalu olesi cetakan dengan margarin/mentega lalu taburi dengan tepung sampai rata
+1. Campurkan gula,telur,dan garam ke wadah untuk bahan, aduk hingga semuanya tercampur rata
+1. Setelah itu masukkan minyak sayur dan susu aduk lagi hingga rata,dan masukkan lagi pisang yang sudah di hancurkan Aduk lagi hingga tercampur
+1. Setelah itu, campurkan tepung terigu, soda powder,baking powder,dan juga susu bubuk menjadi satu lalu di saring bersama-sama
+1. Setelah di saring masukkan secara bertahap (2-3 kali) tepung nya ke adonan pisang tadi, lalu di aduk sehingga tercampur dan tidak ada gumpalan
+1. Setelah semuanya tercampur masukkan ke tempat cetakan
+1. Kemudian, masukkan ke oven panggang selama 40 menit dengan suhu 170°
+1. Siap di hidangkan, bolu pisangnya bisa bertahan 2-3 hari ya bund
+
+
+Bolu pisang mempunyai tekstur yang agak padat dan lembut hal ini menjadi makanan bolu. Bolu pisang biasanya disajikan untuk camilan yang dinikmati bareng keluarga. Berikut IDN Times rangkum resep bolu pisang dan bagaimana cara membuat bolu pisang dengan mudah. Kue bolu pisang (banana cake) adalah jenis kue sehat yang telah dikenal, dan disukai oleh banyak orang. Kue bolu dengan campuran pisang ambon ini teksturnya cukup lembut dan tentu saja anak anak sangat suka. 
+
+Bagaimana? Mudah bukan? Itulah cara membuat bolu pisang yang bisa Anda praktikkan di rumah. Semoga bermanfaat dan selamat mencoba!

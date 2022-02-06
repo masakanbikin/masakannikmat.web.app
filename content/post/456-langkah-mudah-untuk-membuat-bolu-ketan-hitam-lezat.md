@@ -1,0 +1,89 @@
+---
+description: "Langkah Mudah untuk Membuat Bolu Ketan Hitam, Lezat"
+title: "Langkah Mudah untuk Membuat Bolu Ketan Hitam, Lezat"
+slug: 456-langkah-mudah-untuk-membuat-bolu-ketan-hitam-lezat
+date: 2020-09-02T04:11:06.028Z
+image: https://img-global.cpcdn.com/recipes/6e8aceb44bc75bf6/751x532cq70/bolu-ketan-hitam-foto-resep-utama.jpg
+thumbnail: https://img-global.cpcdn.com/recipes/6e8aceb44bc75bf6/751x532cq70/bolu-ketan-hitam-foto-resep-utama.jpg
+cover: https://img-global.cpcdn.com/recipes/6e8aceb44bc75bf6/751x532cq70/bolu-ketan-hitam-foto-resep-utama.jpg
+author: Howard Rivera
+ratingvalue: 5
+reviewcount: 12
+recipeingredient:
+- "125 gram tepung ketan hitam"
+- "125 gram tepung terigu"
+- "4 butir telur"
+- "250 gram gula pasir"
+- "1/2 sdt sp"
+- "1/2 sdt pasta vanila"
+- "50 ml santan instan"
+- "100 gram margarin cairkan"
+- "50 ml minyak goreng"
+recipeinstructions:
+- "Mixer gula, telur, sp dan pasta vanila sampai mengembang.."
+- "Masukkan tepung ketan hitam dan tepung terigu, diayak lebih baik.."
+- "Masukkan minyak, santan, dan margarin.. aduk dengan spatula.."
+- "Masukkan adonan ke dalam loyang yang sudah dioles margarin dan ditaburi tepung terigu..."
+- "Panggang dalam oven dengan suhu 180°c selama 30 menit.. sebelumnya panaskan oven terlebih dahulu ya.."
+- "Tunggu agak hangat baru keluarkan dari loyang.."
+categories:
+- Resep
+tags:
+- bolu
+- ketan
+- hitam
+
+katakunci: bolu ketan hitam 
+nutrition: 175 calories
+recipecuisine: Indonesian
+preptime: "PT16M"
+cooktime: "PT41M"
+recipeyield: "1"
+recipecategory: Dinner
+
+---
+
+
+![Bolu Ketan Hitam](https://img-global.cpcdn.com/recipes/6e8aceb44bc75bf6/751x532cq70/bolu-ketan-hitam-foto-resep-utama.jpg)
+
+Sedang mencari ide resep bolu ketan hitam yang unik? Cara membuatnya memang tidak susah dan tidak juga mudah. Kalau salah mengolah maka hasilnya akan hambar dan justru cenderung tidak enak. Padahal bolu ketan hitam yang enak harusnya sih punya aroma dan rasa yang mampu memancing selera kita.
+
+Lanjut tambahkan &#34;Tepung Ketan Hitam&#34; dan &#34;Pengemulsi SP&#34;, aduk merata. Ketan ada beberapa jenis misalnya saja ketan putih dan ketan hitam. Bagi Anda yang penasaran bagaimana rasa kue yang terbuat dari ketan hitam, Anda bisa coba untuk membuat bolu kukus.
+
+Banyak hal yang sedikit banyak mempengaruhi kualitas rasa dari bolu ketan hitam, pertama dari jenis bahan, kedua pemilihan bahan segar hingga cara membuat dan menghidangkannya. Tidak usah pusing jika ingin menyiapkan bolu ketan hitam enak di rumah, karena asal sudah tahu triknya maka hidangan ini bisa menjadi suguhan istimewa.
+
+
+Di bawah ini ada beberapa tips dan trik praktis yang dapat diterapkan untuk mengolah bolu ketan hitam yang siap dikreasikan. Anda bisa membuat Bolu Ketan Hitam memakai 9 jenis bahan dan 6 tahap pembuatan. Berikut ini langkah-langkah dalam menyiapkan hidangannya.
+
+<!--inarticleads1-->
+
+##### Bahan-bahan dan bumbu yang digunakan dalam menyiapkan Bolu Ketan Hitam:
+
+1. Sediakan 125 gram tepung ketan hitam
+1. Ambil 125 gram tepung terigu
+1. Ambil 4 butir telur
+1. Ambil 250 gram gula pasir
+1. Sediakan 1/2 sdt sp
+1. Ambil 1/2 sdt pasta vanila
+1. Siapkan 50 ml santan instan
+1. Siapkan 100 gram margarin, cairkan
+1. Sediakan 50 ml minyak goreng
+
+
+Brilio.net - Camilan bolu panggang memang sangat beragam. Bolu ketan hitam merupakan salah satu varian dari kue bolu yang menyuguhkan rasa enak, lezat dan sangat lembut. Bolu ketan hitam disukai banyak orang mulai dari anak-anak hingga orang tua. Kue Bolu Spesial yang ini terbuat dari ketan hitam. 
+
+<!--inarticleads2-->
+
+##### Cara membuat Bolu Ketan Hitam:
+
+1. Mixer gula, telur, sp dan pasta vanila sampai mengembang..
+1. Masukkan tepung ketan hitam dan tepung terigu, diayak lebih baik..
+1. Masukkan minyak, santan, dan margarin.. aduk dengan spatula..
+1. Masukkan adonan ke dalam loyang yang sudah dioles margarin dan ditaburi tepung terigu...
+1. Panggang dalam oven dengan suhu 180°c selama 30 menit.. sebelumnya panaskan oven terlebih dahulu ya..
+1. Tunggu agak hangat baru keluarkan dari loyang..
+
+
+Sangat istimewa jika di hidangkan saat liburan bersama keluarga. Cocok juga dijadikan cemilan minum teh saat santai. kue bolu ketan hitam kukus. Kocok telur, gula, garam dan emulsifier sampai adonan Masukkan tepung ketan hitam, tepung terigu, tepung maizena dan baking powder ke dalam adonan. Inilah dia resep membuat sajian kue bolu kukus ketan hitam yang enak. Bolu ketan hitam memiliki rasa yang tidak kalah nikmat dengan bolu dari tepung terigu, malahan bolu ketan hitam memiliki rasa yang lebih legit dan lembut. 
+
+Terima kasih telah menggunakan resep yang kami tampilkan di sini. Besar harapan kami, olahan Bolu Ketan Hitam yang mudah di atas dapat membantu Anda menyiapkan makanan yang sedap untuk keluarga/teman maupun menjadi inspirasi bagi Anda yang berkeinginan untuk berjualan makanan. Selamat mencoba!
